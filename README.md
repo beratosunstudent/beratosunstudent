@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @beratosunstudent
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning english and programming
+- 💞️ I’m married
+- 📫 How to reach me: here
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: nothing special! about me
